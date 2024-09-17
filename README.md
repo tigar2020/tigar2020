@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tigar2020
+- 👀 I’m interested in making technologies programs to help people
+- 🌱 I’m currently learning ro lox studio coding
+- 💞️ I’m looking to collaborate on technologies devs
+- 📫 How to reach me by my email: tigar2020rblx@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im 13....
